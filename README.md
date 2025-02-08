@@ -68,7 +68,6 @@ MaxMontaj67 не только демонстрирует высокий уров
 
 - **Email:** [bandurayv@yandex.ru](mailto:bandurayv@yandex.ru)
 - **Telegram:** [@BandYuraV](https://t.me/BandYuraV)
-- *(При желании можно добавить ссылки на LinkedIn или другие соцсети)*
 
 ---
 
